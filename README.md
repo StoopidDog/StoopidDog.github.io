@@ -1,1 +1,0 @@
-# StoopidDog.github.io
